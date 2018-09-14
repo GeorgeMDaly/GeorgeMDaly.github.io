@@ -6,5 +6,9 @@
 GeorgeMDaly.github.io
 https://georgemdaly.github.io/
 
-## email
-poopyatpoopfacebrowserdotpop
+## contact me
+**Phone Number:** (210) 620-2129
+**Email:** TBH
+
+### My Work
+
